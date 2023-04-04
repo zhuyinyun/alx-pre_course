@@ -1,1 +1,1 @@
-my scond readme Updated
+my scond readme updated
